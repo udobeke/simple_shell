@@ -8,4 +8,4 @@ AUTHORS: 😏
 ---------------------
 Peace Chinagwam
 
-Godspower Udokpah
+Godspower Udokpoh
